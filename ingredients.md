@@ -1,3 +1,3 @@
 Top bun
-Beef patty (added by Stan)
+Cheddar Cheese (added by Stan)
 Bottom bun
